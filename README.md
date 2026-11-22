@@ -1,2 +1,2 @@
-# Creative-media-portfolio
+# Creative-Media-Portfolio
 Professional Portfolio Documenting My Work in Acting, Modelling, Film-making, Television &amp; Media Activities.
